@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sheruyen
+- 👋 Hi, I’m Sher
 - 👀 I’m interested in Art, UX Design
 - 💞️ I’m looking to collaborate on Game Design
 - 📫 How to reach me: t.me/sheruyen
