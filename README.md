@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sher
-- 👀 I’m interested in Art, Animation and UX
+- 👀 I’m interested in Art
 - 💞️ I’m looking to collaborate on Generative Art and Game Design
 - 📫 How to reach me: t.me/sheruyenov
 
